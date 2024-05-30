@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ertinla
+- 👀 I’m interested in technology
+- 🌱 I’m currently learning working on mobile and web application
+- 📫 you reach me you can contact me via ertinlaiaa@gmail.com
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I ❤ 🐶🐱
